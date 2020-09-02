@@ -1,2 +1,0 @@
-# syaichul.fadhil
-Syaichul Fadhil
